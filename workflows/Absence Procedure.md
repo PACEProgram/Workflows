@@ -1,0 +1,3 @@
+**What should students do if they are too sick to go to class or have another conflict or emergency? Can students get an absence excuse or a missed exam excuse?**
+
+Students should contact their instructors to make arrangements to make up missed work or assignments. They may also elect to contact an OUE academic adviser for assistance. The OUE provides verification of medical absences for missed midterms or major exams if an in­structor requests this of the student, but only in instances in which proper documentation is available.
